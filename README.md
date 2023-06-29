@@ -1,2 +1,2 @@
 # 2F
-brunin totoso
+Todas as palhaçadas do 2F
